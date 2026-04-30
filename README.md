@@ -2,4 +2,4 @@
 
 ---
 ## 🔗 Stream Links
-- 💠 [BEAM](https://beamstream.gg/renzoscriber)
+> 💠 [BEAM](https://beamstream.gg/renzoscriber)
